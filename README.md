@@ -5,11 +5,9 @@ I tried to make it a little hard to find me, sorry.
 
 Feel free to reach out via:
 - [Email](mailto:8opg6aq1q@mozmail.com)
-- [LinkedIn](https://linkedin.com/in/your-profile)
 
----
-
-[Dance](https://open.spotify.com/playlist/6jbSXE0hfgRFdQ8pIOZcMg)
+## Dance with Me 🕺
+- [Dance](https://open.spotify.com/playlist/6jbSXE0hfgRFdQ8pIOZcMg)
 
 <!--
 **Panderious/Panderious** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
